@@ -2,8 +2,7 @@
 <p align="center"> 
 <img src="https://64.media.tumblr.com/6419fcbb3eb60de7813165b9dd167ffb/ff798799bed27766-8c/s2048x3072/a6b2eaf195503386994194d8416d1d2d6d6432ae.pnj"/>
 <img src="https://files.catbox.moe/j0wghg.png"
-  width="600" 
-  height="900"
+  height="600"
   align="left"/>
 
 <h3 align="center"><strong><i>AULLUVER</i></strong>
