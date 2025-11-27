@@ -5,8 +5,10 @@
   height="600"
   align="left"/>
 
+
 <h3 align="center"><strong><i>AULLUVER</i></strong>
-<img src=""/>‎ ‎ <img src=""/>  </h3>
+
+![](https://komarev.com/ghpvc/?username=dubiousswan&color=cc4545&style=plastic&label=shiny+counter)</h3>
 <h6 align="center">   <img src="https://files.catbox.moe/bovbvu.webp" /> YOUR BASE ARE BELONG TO US! 
 <h5 align="center"> <img src="https://64.media.tumblr.com/b745bebef599c490c1ab97bd139e99d7/7f4c2dc584095345-df/s75x75_c1/fcd398661638ca401739297e2535f6599705a582.pnj" height="65" /> <img src="https://64.media.tumblr.com/7f042b5d047be9e8b0ea5f9cd4f1ed39/716ae0d039c13583-96/s75x75_c1/2887844c8f6b999846b818030dc976c0a0d574fb.pnj" height="65" /> 
   <h5 align="center"></h5>
