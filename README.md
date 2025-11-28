@@ -29,7 +29,7 @@
 </p>
 
 <p align="center">howdy! im aulluver, a 21 year old creative from canada! <br>
-im genderqueer and use he/any pronouns! (including neos!)</p>
+im genderqueer and use he/she/any pronouns! (including neos!)</p>
 
 <p align="center">i don't have a dni, i'll just block if im uncomfortable! <br>
   a lot of my links are a wip! apologies!</p>
