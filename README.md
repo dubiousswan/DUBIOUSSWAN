@@ -22,7 +22,7 @@
 
 <p align="center">
   <b>my stuff:</b><br>
-  <a href="#">wip</a> |
+  <a href="https://dubiousswan.straw.page/">Strawpage</a> |
   <a href="https://dubiousswan.atabook.org/">Atabook</a> |
   <a href="#">wip</a>
   
