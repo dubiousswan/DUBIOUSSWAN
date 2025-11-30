@@ -26,15 +26,13 @@
   <b>my stuff:</b><br>
   <a href="https://dubiousswan.straw.page/">Strawpage</a> |
   <a href="https://dubiousswan.atabook.org/">Atabook</a> |
-  <a href="#">wip</a>
+  <a href="https://rentry.co/dubiousbyi">BYI</a>
   
 </p>
 
 <p align="center">howdy! im aulluver, a 21 year old creative from canada! <br>
 im genderqueer and use he/she/any pronouns! (including neos!)</p>
 
-<p align="center">i don't have a dni, i'll just block if im uncomfortable! <br>
-  a lot of my links are a wip! apologies!</p>
 
 <p align="center"><b>AWAY STATUS: Offtab! <br>
 BUSY STATUS: Asleep!</b></p>
