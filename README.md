@@ -26,7 +26,7 @@
   <b>my stuff:</b><br>
   <a href="https://dubiousswan.straw.page/">Strawpage</a> |
   <a href="https://dubiousswan.atabook.org/">Atabook</a> |
-  <a href="https://rentry.co/dubiousbyi">BYI</a>
+  <a href="https://github.com/cynoboo">HUSBAND</a>
   
 </p>
 
