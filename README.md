@@ -45,3 +45,10 @@ BUSY STATUS: Asleep!</b></p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/82a8f1a40fa216af7d28f25f51e0b02e/ff798799bed27766-b6/s2048x3072/cc22c8bfca7849f0d9ea3360097b72ded2cee835.pnj"/></p>
+
+<p align="center"><sub>this pony & my husbands matching are <b>NOT FORSAKEN</b> <br>
+  please stop calling them that i am begging you</sub></p>
+  <p align="center"><img height="100" src="https://files.catbox.moe/m3hc86.gif"></p>
+  <p align="center"><sub>theyre ocs we've had for multiple years <br>
+  i sit near the roblox area because i like <b>pressure!!</b> <br>
+  i dont know wtf forsaken is about!!!!!!!!! </sub>
