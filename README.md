@@ -1,9 +1,6 @@
 
 <p align="center"> 
 <img src="https://64.media.tumblr.com/6419fcbb3eb60de7813165b9dd167ffb/ff798799bed27766-8c/s2048x3072/a6b2eaf195503386994194d8416d1d2d6d6432ae.pnj"/>
-<img src="https://files.catbox.moe/j0wghg.png"
-  height="600"
-  align="left"/>
 
 
 <h3 align="center"><strong><i>AULLUVER</i></strong>
@@ -34,14 +31,11 @@
 im genderqueer and use he/she/any pronouns! (including neos!)</p>
 
 
-<p align="center"><b>AWAY STATUS: Offtab! <br>
-BUSY STATUS: Asleep!</b></p>
-
-
 </br>
 <p align="center"><img height="55" width="99" src="https://64.media.tumblr.com/34025c25c398b0b742bd529651173334/c9e726a4e328dd00-90/s100x200/c2d2e014f7a69b540ed6ab2861af02c467c86616.gifv"/>    <img height="55" width="99" src="https://64.media.tumblr.com/b8286d1ee2f9d5251eb304dcb1666f96/55795a6deba74ee1-5e/s250x400/30f94f5075b1e0cf73c6ada5d6a3b788e2e72901.pnj"/>    <img height="55" width="99" src="https://64.media.tumblr.com/bfd86461bb3f5f602aa6b6668bdc084d/2330eeac38bf1208-2a/s250x400/1e284abf14e3576482d2bcd537a302067dc8fa87.gifv"/></p> 
 
-<p align="center"><img height="300" src="https://64.media.tumblr.com/2279edf4f90a111073cba2cad57418c6/2cfabac7169f58b9-81/s500x750/0cd9d6b2f717b0c1292bf9fd5297ae7cabbb992c.gifv"></p>
+<p align="center"><sub>took away my art because github is a filthy genai using platform lol</sub>
+
 
 <p align="center">
   <img src="https://64.media.tumblr.com/82a8f1a40fa216af7d28f25f51e0b02e/ff798799bed27766-b6/s2048x3072/cc22c8bfca7849f0d9ea3360097b72ded2cee835.pnj"/></p>
