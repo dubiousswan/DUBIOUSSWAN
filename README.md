@@ -1,11 +1,10 @@
 
 <p align="center"> 
-<img src="https://64.media.tumblr.com/6419fcbb3eb60de7813165b9dd167ffb/ff798799bed27766-8c/s2048x3072/a6b2eaf195503386994194d8416d1d2d6d6432ae.pnj"/>
 
 
 <h3 align="center"><strong><i>AULLUVER</i></strong>
 
-![](https://komarev.com/ghpvc/?username=dubiousswan&color=6d67a8&style=plastic&label=shiny+counter)
+![](https://komarev.com/ghpvc/?username=dubiousswan&color=6d67a8&style=plastic&label=page+clicks)
 
 [SIGN MY TREE!](https://colormytree.me/2025/01KB9S8KZ6FZ1W34QHJ4GK5VXR)</h3>
 <h6 align="center">   <img src="https://files.catbox.moe/bovbvu.webp" /> YOUR BASE ARE BELONG TO US! 
@@ -39,4 +38,3 @@ I am plural/have an osdd! <i>i am diagnosed.</i></p>
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/82a8f1a40fa216af7d28f25f51e0b02e/ff798799bed27766-b6/s2048x3072/cc22c8bfca7849f0d9ea3360097b72ded2cee835.pnj"/></p>
