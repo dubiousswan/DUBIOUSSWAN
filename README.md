@@ -6,7 +6,7 @@
 
 ![](https://komarev.com/ghpvc/?username=dubiousswan&color=6d67a8&style=plastic&label=page+clicks)
 
-[SIGN MY TREE!](https://colormytree.me/2025/01KB9S8KZ6FZ1W34QHJ4GK5VXR)</h3>
+</h3>
 <h6 align="center">   <img src="https://files.catbox.moe/bovbvu.webp" /> YOUR BASE ARE BELONG TO US! 
 <h5 align="center"> <img src="https://64.media.tumblr.com/b745bebef599c490c1ab97bd139e99d7/7f4c2dc584095345-df/s75x75_c1/fcd398661638ca401739297e2535f6599705a582.pnj" height="65" />  
   <h5 align="center"></h5>
